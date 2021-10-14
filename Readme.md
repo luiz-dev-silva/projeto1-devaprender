@@ -1,0 +1,1 @@
+o intuito desse trabalho é apenas para fins educativos.
